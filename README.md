@@ -44,24 +44,3 @@
 
 ![10](https://github.com/bona1210/click/assets/40886468/ec70424e-f2d0-410c-8c6b-88c0f74f2386)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
